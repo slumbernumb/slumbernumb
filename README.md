@@ -5,7 +5,7 @@
 <p align="center"> <img src="https://i.postimg.cc/cLCX2Fqt/aaaaa.png"/> </p>
 
 <p align="center">
-⁺　♱　　　finn　, ,　　any　₊　trms  <br>  O3.O1　.　〷　　slumbernumb on disc ₊ †
+⁺　♱　　　finn / kami　, ,　　any　₊　trms  <br>  O3.O1　.　〷　　slumbernumb on disc ₊ †
 </p>
 
 <div align="center">
